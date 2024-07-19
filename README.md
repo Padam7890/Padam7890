@@ -4,7 +4,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on it MERN, PERN, NEXT JS, NODE JS
 - 👯 I’m looking to collaborate on MERN, PERN, NEXT JS, NODE JS
-- 🤔 I’m looking for help with ANYONE ;)
+- 🤔 I’m looking for help: WHAT? 
 - 💬 Ask me about, LOOK AT THE SKY THERE ARE SHINING STAR
 - 📫 How to reach me: ... yOU ARE ALREADY HERE
 - 😄 Pronouns: ... P A D A M
